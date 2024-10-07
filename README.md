@@ -5,4 +5,4 @@ Download: [https://downgit.github.io/#/home?url=https://github.com/yassinbassem1
 
 LinkedIn:https://www.linkedin.com/in/yassinbassem/
 
-Huge thanks to Mazen Hany for being such an amazing friend!You’ve always been there when I needed a hand, and I truly appreciate everything you’ve done. 
+Huge thanks to my friend Mazen Hany. You’ve always been there when I needed a hand, and I truly appreciate everything you’ve done. 
